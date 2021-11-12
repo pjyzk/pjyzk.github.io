@@ -1,4 +1,4 @@
-   ## Resume
+## Resume
 ### E-mail:1192069072@qq.com
 
 ### Education
